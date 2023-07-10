@@ -5,3 +5,4 @@
 
 ## 福利频道
 + 虾米之家：https://xiami.homes
++ 1024拉丁网：https://1024.lat
